@@ -1,4 +1,4 @@
-Hello, I'm maviemation on GitHub!
+Hello, I'm maviemation!
 I do not really interact here, so it seems like I'll be a lurker or a silent observer.
 I'll post some things here soon.
 See you around!
